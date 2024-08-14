@@ -11,4 +11,4 @@ Meu nome é: Kauê Gabryel Castro Silva
 
 
 
-https://media1.tenor.com/m/u4yXRwtMpHgAAAAd/clone-clashroyal.gif
+![](https://media1.tenor.com/m/u4yXRwtMpHgAAAAd/clone-clashroyal.gif)
